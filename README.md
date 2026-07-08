@@ -16,6 +16,6 @@ Iam an Electronics And Telecommunication Engineering Graduate transitioning into
  -Bi tools - Power Bi
 
  # Connect with Me
- LInked-in :-linkedin.com/in/chinmay-pakle-27a3813b1
+ LInked-in :- https://www.linkedin.com/in/chinmay-pakle-27a3813b1/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BS%2FPwGq2qQ3u%2FNjjRAIgAOg%3D%3D
 
  Gmail - chinmaypakle2004@gmail.com
